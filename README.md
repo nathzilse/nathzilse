@@ -16,4 +16,10 @@ Aqui no meu GitHub compartilho projetos, estudos e ideias em desenvolvimento.
 
 ---
 
+## 🌐 Onde me encontrar  
+📩 **E-mail:** [natzilse@gmail.com](mailto:natzilse@gmail.com)  
+📸 **Instagram:** [@sf_nah](https://instagram.com/sf_nah)  
+
+---
+
 
