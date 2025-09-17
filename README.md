@@ -23,3 +23,5 @@ Aqui no meu GitHub compartilho projetos, estudos e ideias em desenvolvimento.
 ---
 
 
+### 💖 Obrigada por visitar meu perfil!  
+⭐ Se gostar, não esqueça de deixar uma **estrelinha** nos meus projetos! ⭐
